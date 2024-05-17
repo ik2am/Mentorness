@@ -20,4 +20,4 @@ For any questions or further information, feel free to contact me
 
 Email: ikramelouadi64@gmail.com
 
-LinkedIn: linkedin.com/in/ikramelouadi
+LinkedIn: https://www.linkedin.com/in/ikramelouadi/
